@@ -12,5 +12,5 @@
 
 📫 How to reach me: avmancillas@gmail.com
 
-⚡ Fun fact: I'm an avid reader. I'm hoping to one day publish my own book! ...
+⚡ Fun fact: I'm an avid reader. I'm hoping to one day publish my own book! 
 
